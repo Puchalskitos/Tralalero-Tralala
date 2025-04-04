@@ -1,2 +1,2 @@
 # Tralalero-Tralala
-It's our life.
+Vida de caipira não é fácil...
